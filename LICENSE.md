@@ -1,4 +1,4 @@
-#  
+#  anime card clash Scripts professional is the best anime card clash Script, featuring auto-sell and private server access. Safe and powerful for all
 
 
 
